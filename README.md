@@ -1,1 +1,0 @@
-# Hw2-anemilid
